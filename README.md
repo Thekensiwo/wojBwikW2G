@@ -3,7 +3,7 @@
 
 ### Stronka na PDZ ###
 
-
+https://thekensiwo.github.io/wojBwikW2G/
 
 
 
