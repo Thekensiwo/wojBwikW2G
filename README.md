@@ -1,7 +1,7 @@
 # wojBwikW2G
 
 
-#Stronka na PDZ
+# Stronka na PDZ
 
 
 
